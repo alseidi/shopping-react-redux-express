@@ -1,1 +1,1 @@
-# clothing-stop
+# clothing-shop
